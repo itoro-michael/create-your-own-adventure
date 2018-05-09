@@ -1,1 +1,1 @@
-
+Ukang nnyin emedi, ideme?
